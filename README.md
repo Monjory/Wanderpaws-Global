@@ -1,1 +1,0 @@
-# Wanderpaws-Global
